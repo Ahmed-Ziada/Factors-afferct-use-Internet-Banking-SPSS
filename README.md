@@ -1,0 +1,1 @@
+# Factors-afferct-use-Internet-Banking-SPSS
